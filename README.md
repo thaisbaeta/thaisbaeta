@@ -4,7 +4,7 @@
 -Ultilizo esse espaço para compartilhar meus projetos
 
 📫thaishaag@prof.educacao.sp.gov.br
-![](https://tenor.com/pt-BR/view/dzao-nazare-gif-27436608)
+![(https://tenor.com/pt-BR/view/dzao-nazare-gif-27436608]
 
 
 
