@@ -5,9 +5,7 @@
 
 📧thaishaag@prof.educacao.sp.gov.br
 
-
-
-![](https://media1.tenor.com/m/y37jNuLhSJEAAAAd/dzao-nazare.gif)
+![](https://media.tenor.com/vK60kNp1grIAAAAM/treadmill-treat.gif)
 
 
 
